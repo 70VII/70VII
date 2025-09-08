@@ -1,4 +1,16 @@
-## Hi there 👋
+# *eclipse first, the rest nowhere*
+<br/>
+
+* ☄️🐉🐣
+* games, basketball, anime and coding
+* basta pumasa 💔
+<br/>
+<br/>
+
+![this is special week, the goat](https://media.tenor.com/p8IyyTqho9gAAAAM/special-week-umamusume.gif)
+
+
+
 
 <!--
 **70VII/70VII** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
