@@ -7,7 +7,7 @@
 <br/>
 <br/>
 
-![this is special week, the goat](https://media.tenor.com/p8IyyTqho9gAAAAM/special-week-umamusume.gif)
+![this is special week, the goat](https://media.tenor.com/p8IyyTqho9gAAAAM/special-week-umamusume.gif) ![spectre week](https://media1.tenor.com/m/AevBY0o0Tw4AAAAC/spechan-special-week.gif)
 
 
 
